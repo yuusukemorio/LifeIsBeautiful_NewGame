@@ -1,0 +1,1 @@
+LifeIsBeautiful_NewGame
